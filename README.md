@@ -9,7 +9,7 @@
 <br/>
 <br/>
 
-![](https://64.media.tumblr.com/25af87300f0c0e8e2a8fea4dc5957ed3/5f73dcc39478e4c2-dc/s75x75_c1/190cc3b64ac178024550406bf2ee46f6ce574280.gifv)     [attabook](https://arthurmorgan.atabook.org/)  ![](https://64.media.tumblr.com/cad9653f240c2ce833b5d8a8456f9243/3c74d06b377fdc9b-75/s75x75_c1/3e2a3b5c587463892c8aa9bd33ac98fb7eef8bec.gifv) $\color{#ccc19e}{\textsf{strawpage is a wip}}$   ![](https://64.media.tumblr.com/8fffea28825b94343e000c0472003f54/3c74d06b377fdc9b-c6/s75x75_c1/08091cb7c2976dee20f7e5ce9cb84084496441bb.gifv)   [prns.cc](https://pronouns.cc/@Rdr2)  ![](https://64.media.tumblr.com/25af87300f0c0e8e2a8fea4dc5957ed3/5f73dcc39478e4c2-dc/s75x75_c1/190cc3b64ac178024550406bf2ee46f6ce574280.gifv)
+![](https://64.media.tumblr.com/25af87300f0c0e8e2a8fea4dc5957ed3/5f73dcc39478e4c2-dc/s75x75_c1/190cc3b64ac178024550406bf2ee46f6ce574280.gifv)     [attabook](https://arthurmorgan.atabook.org/)  ![](https://64.media.tumblr.com/cad9653f240c2ce833b5d8a8456f9243/3c74d06b377fdc9b-75/s75x75_c1/3e2a3b5c587463892c8aa9bd33ac98fb7eef8bec.gifv) $\color{#ccc19e}{\textsf{ALT rentry in bio im too lazy}}$   ![](https://64.media.tumblr.com/8fffea28825b94343e000c0472003f54/3c74d06b377fdc9b-c6/s75x75_c1/08091cb7c2976dee20f7e5ce9cb84084496441bb.gifv)   [prns.cc](https://pronouns.cc/@Rdr2)  ![](https://64.media.tumblr.com/25af87300f0c0e8e2a8fea4dc5957ed3/5f73dcc39478e4c2-dc/s75x75_c1/190cc3b64ac178024550406bf2ee46f6ce574280.gifv)
 
 <div align="center"> 
   
